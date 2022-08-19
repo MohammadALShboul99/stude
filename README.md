@@ -1,1 +1,5 @@
-# stude
+# WASEEM ABUAMER 
+1. HJBJ
+2. JHJ
+
+=====
